@@ -23,7 +23,7 @@
 
 - 📫 How to reach me **trtanvir371@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ozLJi7Lv1Ef7TDPuIhzep8UXOpMuEb_-/view?usp=sharing](Resume)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1ozLJi7Lv1Ef7TDPuIhzep8UXOpMuEb_-/view?usp=sharing)
 
 - ⚡ Fun fact **Australia is wider than the moon.**
 
